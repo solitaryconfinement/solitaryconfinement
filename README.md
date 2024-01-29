@@ -1,1 +1,1 @@
-<img src="blob:chrome-untrusted://media-app/7d3cf024-4b14-4d6f-a3e5-4137aa62ca80" alt="images (13).jpeg"/>![image](https://github.com/solitaryconfinement/solitaryconfinement-_-/assets/158015499/e1e428f5-9ff6-4866-959b-f9e113f637b5)
+
